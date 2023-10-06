@@ -1,7 +1,6 @@
 ```
-
-               to load; press on image.                  
-               pass; 2023   
+                 to load; press on image.                             
+                 pass; 2023          
           
 ```
 [![FLS](https://media.discordapp.net/attachments/1022160755858083950/1159914448434241546/linage.png?ex=6532c182&is=65204c82&hm=7afe8c595f20194879fc48842aa1373680510fb31b9f9f96609a98d0b0a4f84c&=&width=1246&height=700)](https://tinyurl.com/stfr23)
